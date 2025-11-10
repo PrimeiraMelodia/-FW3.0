@@ -527,5 +527,12 @@ Agradecemos a todos que contribuíram para tornar a educação Web3 mais acessí
 **Feito com ❤️ e ☕ pela Fundação Web3**
 
 ⭐ Se este projeto foi útil, considere dar uma estrela no GitHub!
+idealizacao
+
+Maria Joao Abujamra
+@mjabujamra
+#mjabujamra 
+provoca.news
+aprovocadora.com
 
 </div>

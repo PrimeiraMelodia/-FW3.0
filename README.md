@@ -23,6 +23,34 @@
 
 ## 📖 Sobre o Projeto
 
+Sonho, Para Um Mundo Mais Humano!  Filosofia Da Nossa  Fundação.               ………………..,...................Descentralizada.                          
+Nossa Filosofia É Oferecer A Partir Da Web3.0 Um Mundo Mais Humano E Oportunidades Para Todos.
+Inoperabilidade E Nossa Missão.
+Nomenclaturas Por Natureza Já São Ruins, Podem Inibir O Potencial De Crescimento, Promover A Mentalidade Burocrática, Estimular A Obsessão Corporativa Pelos Títulos, Estruturas E Não Por Talentos, Ideias E Resultados.
+Num Mundo Em Que Todos Falam E Pouco Ouvem, Propomos O Uso De Um Outro Sentido.
+Propomos Um Olhar. Vamos Olhar Para O Futuro Inspirado Pela Dinâmica De Mudanças Do Brasil  E Mundo.
+Estamos Criando Uma Missão Muito Diferente 
+Somos Uma Comunidade Que Irá De Forma Crível, Relevante, Competitiva E Disruptiva,  Conversar Com Tudo E Todos, Buscar Novos Caminhos, Soluções, Resultados, Inovações, Tecnologias, Portabilidades, Divisibilidades, Tornar Tangível Até A Interoperabilidade Dos Metaversos. 
+Ou Melhor Multiversos !
+Vamos  Encontrar Estratégias Nada Convencionais.
+A Fundação É Hiper-Cultural, E Confirma A Memorabilidade Em Quaisquer Ações Sob Nossa Responsabilidade.                                                                           A Intersecção E A Interoperabilidade É O Nosso Maior Desafio. Tempo E Ativos.
+Novos Dinheiros .    
+Vamos Fundir O Infungível!.
+Seja Mais Que Bem Vinda(0) 
+Não A Palavra Para Isto, Simplesmente É Um Sentimento.Não Há Empresa Separada Departamento Separado, Nenhum Nome Separado, Nenhuma Nomenclatura, Nós Somos Uma Geração Que Está Participando Da Maior Missão De Todos Os Tempos, Temos Como Obrigação Achar A Coisa Certa Para Se Fazer.
+
+Seja Parceiro.
+Tenha uma sua coluna semanal.
+Conheça nossa Agência, 
+Decentralize sua empresa.
+Tenha seu escritório modular, no nosso METAVERSO.
+Indique artistas governe conosco o ClubrDa.Art  
+Nfts e Experiências De Tirar O Fôlego!  
+Chegamos para  Você! 
+Faça A Sua Inscrição Para Adquirir Seu Token. e fazer parte da maior missão, interoperabilidade, em busca da verdade e viver com Liberdade.  Maria João Abujamra 
+
+
+
 A **Fundação Web3** é uma plataforma educacional completa dedicada a democratizar o conhecimento sobre Web3, blockchain, criptomoedas, NFTs e tecnologias descentralizadas. Nossa missão é transformar curiosos em especialistas através de uma experiência de aprendizado interativa, gamificada e envolvente.
 
 ### 🎯 Missão
@@ -458,7 +486,7 @@ Este projeto está sob a licença MIT. Veja o arquivo [LICENSE](LICENSE) para ma
 ---
 
 ## 👥 Equipe
-
+idealizadora - Maria Joao Abujamra
 **Fundação Web3** - Democratizando o acesso à educação descentralizada
 
 - 📺 [YouTube - Provocadora](https://youtube.com/@provocadora)
@@ -505,7 +533,8 @@ Este projeto está sob a licença MIT. Veja o arquivo [LICENSE](LICENSE) para ma
 
 Precisa de ajuda? Entre em contato:
 
-- 📧 Email: [fundacaoweb3@2025](mailto:fundacaoweb3@2025)
+- 📧 Email: [fundacaoweb3@gmail.com)
+- -tel-5511-945686070
 - 💬 Discord: [Em breve]
 - 🐦 Twitter: [Em breve]
 
@@ -532,7 +561,5 @@ idealizacao
 Maria Joao Abujamra
 @mjabujamra
 #mjabujamra 
-provoca.news
-aprovocadora.com
 
 </div>
